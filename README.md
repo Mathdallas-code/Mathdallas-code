@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on Discord and Github
 - 📫 How to reach me:
   - Email:- mathdallasrobolx@gmail.com
-  - Discord:- @Mathdallas
-  - YouTube:- youtube.com/Mathdallas
+  - Discord:- @mathdallasrblx
+  - YouTube:- https://www.youtube.com/@MathdallasRblx
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I play Roblox too!
 
