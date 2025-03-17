@@ -1,11 +1,10 @@
 - 👋 Hi, I’m @Mathdallas-code
-- 👀 I’m interested in learning Python
-- 🌱 I’m currently learning Python
+- 👀 I’m interested in learning Python and JavaScript
+- 🌱 I’m currently learning both of them :D
 - 💞️ I’m looking to collaborate on Discord and Github
 - 📫 How to reach me:
   - Email:- mathdallasrobolx@gmail.com
   - Discord:- @mathdallasrblx
-  - YouTube:- https://www.youtube.com/@MathdallasRblx
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I play Roblox too!
 
